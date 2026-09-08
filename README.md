@@ -1,1 +1,1 @@
-# top3-people-that-really-inspiring-me-in-my-opinion-
+# top3-people-that-really-inspiring-me
